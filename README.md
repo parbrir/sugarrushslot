@@ -61,7 +61,7 @@ Sugar Rush слот ломает шаблоны традиционных авт�
 |-----------------------|---------------------------------|  
 | **[ARKADA CASINO](https://clck.ru/3Hr27o)** | 150% + 2000FS                  |  
 | **[R7 CASINO](https://clck.ru/3HsT58)**     | 50% + 50FS                     |  
-| **[KOMETA CASINO](https://clck.ru/3HsSpx)** | 255% + 500FS                   |  
+| **[KOMETA CASINO](https://clck.ru/3JHf2X)** | 255% + 500FS                   |  
 | **[CAT CASINO](https://clck.ru/3HsTGi)**    | 75% + 50FS                     |  
 | **[DADDY CASINO](https://clck.ru/3HsTSj)**  | 100% + 100FS                   |  
 
